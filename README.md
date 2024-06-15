@@ -2,7 +2,7 @@
 
 Yeu88 - Thiên Đường Cá cược Trực Tuyến Đẳng Cấp Thời Đại
 
-[url=https://yeu88.guru/]Yeu88[/url] tự hào là điểm đến cá cược thu hút hàng triệu bet thủ. Cùng khám phá những tinh túy chỉ có tại nhà cái này ngay bên dưới.
+[Yeu88](https://yeu88.guru/) tự hào là điểm đến cá cược thu hút hàng triệu bet thủ. Cùng khám phá những tinh túy chỉ có tại nhà cái này ngay bên dưới.
 
 Thông tin liên hệ
 
